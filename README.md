@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Eurydice777
+- 👀 I’m interested in UX/UI Design, Psychology, Fashion & Cats
+- 🌱 I’m currently learning HTML, CSS, Python & Design tools (Figma, Adobe Photoshop)
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Linkedin @kinga-klepczarek
